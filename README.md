@@ -1,1 +1,2 @@
-# 12-aplikasi-building-android
+DESAIN HAMBA ALLOH
+APLIKASI VERSI 6.0
